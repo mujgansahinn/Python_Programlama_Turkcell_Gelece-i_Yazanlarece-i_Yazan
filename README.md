@@ -1,0 +1,1 @@
+# Python_Programlama_Turkcell_Gelece-i_Yazanlarece-i_Yazan
